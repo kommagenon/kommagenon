@@ -7,6 +7,6 @@ Ironic I say this being a Russian, but oh well...
 I'm already versed in JS – but will focus on Fullstack dev.
 Then I'm shifting my focus on Solidty and Rust.
 
-Am I about to launch a new NFT series?... No. I'm not a retard. 
+Am I about to launch a new NFT series?... No. I'm not a ************** 
 
 Wear your seatbelts.
